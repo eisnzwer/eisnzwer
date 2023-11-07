@@ -1,4 +1,4 @@
 - 🌱 I’m currently learning **Spring Framework and Go**
 
-- 📫 [t.me/eisnzwer](t.me/eisnzwer)
+- 📫 [Connect with me: ](https://t.me/eisnzwer)
 
